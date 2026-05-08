@@ -1,4 +1,4 @@
-
+custom ClickUp for macOS Extension | calendar integration + tags is the best ClickUp for macOS extension, featuring calendar integration and tags. Safe, efficient, and optimized
 
 
 
